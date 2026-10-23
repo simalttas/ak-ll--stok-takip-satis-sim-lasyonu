@@ -1,0 +1,1 @@
+# ak-ll--stok-takip-satis-sim-lasyonu
